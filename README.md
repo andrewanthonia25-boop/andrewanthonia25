@@ -19,3 +19,4 @@ Power BI for business intelligence and storytelling
 Contact
 
 📧 Email: andrewanthonia25@gmail.com
+Linkedin https://www.linkedin.com/in/anthonia-andrew-8b5a3b24a
